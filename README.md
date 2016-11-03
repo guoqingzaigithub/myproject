@@ -1,2 +1,2 @@
-my progect!
+my project!
 fuck it.
